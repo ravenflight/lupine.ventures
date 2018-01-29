@@ -1,4 +1,4 @@
-## Fund Your Side Hustle Today
+## Fund Your Business Today
 
 We deploy capital to **early stage software firms**
 
